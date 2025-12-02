@@ -1,5 +1,5 @@
 - 👋 Hi, I’m TheCyberAwarePotatoMan
-- 👀 I’m interested in planes, Cybersecurity, Tally Hall, Lenom Demon, and Networking
+- 👀 I’m interested in planes, cybersecurity, Tally Hall, Lenom Demon, networking, and furry stuff (ewwwwww)
 - 🌱 I’m currently learning Cybersecurity
 - 📫 How to reach me darrenlueders2@gmail.com
 
